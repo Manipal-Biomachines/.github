@@ -1,1 +1,1 @@
-# We are Manipal Biomachines
+# Manipal Biomachines
